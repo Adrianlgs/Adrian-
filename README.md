@@ -8,5 +8,5 @@ utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 ### você entrar em contato comigo 📫
 
-adrianlyiz592@gmail.com
+adrianluiz592@gmail.com
 @__777souza 
